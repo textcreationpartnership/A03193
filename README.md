@@ -37,9 +37,23 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Englands Elizabeth her life and troubles, during her minoritie, from the cradle to the crowne. Histo
+Est mihi supp•icij causa fuisse piam.Many daughters haue don well but thou surpass est them all.I S.
+1. TO
+THE RIGHT
+HONOVRABLE
+the Lord HENRY
+Earle of Douer, Viscount
+ROCHFORD,
+L. Hunsdon, &c.
+
+1. TO THE
+GENEROVS
+READER.
+
 #####Body#####
-Englands Elizabeth her life and troubles, during her minoritie, from the cradle to the crowne. Histo
+
+1. HEN. 8.
+
 **Types of content**
 
   * There are 26 **verse** lines!
